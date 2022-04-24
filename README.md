@@ -1,2 +1,2 @@
-# trial
-Just a Trial 
+# personal info
+Just my Name dude 💻
